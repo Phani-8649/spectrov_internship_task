@@ -1,0 +1,1 @@
+# spectrv_internship_task
